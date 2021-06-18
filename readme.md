@@ -4,7 +4,9 @@ This is the github and code for Yeetbot, I have given out instructions and info.
 
 I do not take any responsibility on your actions and you will face any charges that direct to you, this bot DOES NOT encourage illegal activity nor does it break the Discord TOS and Guidelines.
 
-Now fuck off uwu
+Now fuck off 
+
+***DISCONTINUED***
 
 ~Shawn
 
